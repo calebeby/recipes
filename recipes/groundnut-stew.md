@@ -3,7 +3,7 @@
 ## Instructions
 
 1. Make rice
-1. Put 1lb dead chickens into small chunks
+1. Put 1 lb dead chickens into small chunks
 1. Cut 1 onion into chopped
 1. Cook chicken and onions together on medium in large pot
 1. Wait for onions to be translucent
