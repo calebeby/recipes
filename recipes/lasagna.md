@@ -3,9 +3,9 @@
 ## Instructions
 
 1. Thaw 1 box frozen chopped spinach
-1. Put 1 can spaghetti in large bowl
-1. Drain spinach and put it in bowl with spaghetti
-1. Add 8 oz tomato sauce to bowl with spaghetti (extra water from can is ok)
+1. Put 1 can spaghetti sauce in large bowl
+1. Drain spinach and put it in bowl with spaghetti sauce
+1. Add 8 oz tomato sauce to bowl with spaghetti sauce (extra water from can is ok)
 1. Stir up so spinach is not chunked
 1. Add 1 tsp garlic powder, 1 tsp oregano, 1 tsp basil
 1. In another (smaller) mixing bowl, put 1 16 oz container of cottage cheese
