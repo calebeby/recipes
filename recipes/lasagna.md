@@ -13,7 +13,7 @@
 1. Put 1/4 tsp black pepper
 1. Stir it up until egg is mixed in
 1. Grate ~3 cups of cheese
-1. Put thin layer of tomato sauce on bottom of glass dish (9"x13" or bigger)
+1. Put thin layer of tomato sauce mixture on bottom of glass dish (9"x13" or bigger)
 1. Put 1 layer of lasagna noodles
 1. Put 1 layer of cottage cheese mixture
 1. Put thin layer of shredded cheese
