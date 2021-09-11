@@ -13,4 +13,5 @@
 
 ## Toppings
 
-Cheese, sour cream, tortilla chips, salsa, cheese
+Underneath: tortilla chips, salad
+On top: cheese, sour cream, salsa, cheese
