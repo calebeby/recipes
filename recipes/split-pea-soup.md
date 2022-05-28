@@ -18,7 +18,7 @@
 1. Add 1 tsp cumin
 1. Add 1 tsp salt
 1. Wait for onions to be translucent
-1. Add (~2 cups) chopped zucchini
+1. Add (~2 cups) chopped zucchini (optional)
 1. Wait for zucchini to be mushy (~10 min)
 1. Remove from heat
 1. Add ~1/2 cup milk

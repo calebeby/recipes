@@ -4,6 +4,7 @@
 
 (1 person worth of food) - I will double everything
 
+1. Start cooking 1/2 chicken breast
 1. Put 1 can refried beans in a glass bowl, heat in microwave for 1 - 2 min
 1. Stir
 1. Add 2 tsp. chili powder, 1 tsp. cumin, 1 tsp. coriander (?), heat for ~1 more minute in microwave
