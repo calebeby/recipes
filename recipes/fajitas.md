@@ -5,9 +5,9 @@
 1. Buy ~3 lb bag of frozen chicken breast
 1. If chicken is frozen, let it thaw until it can be cut into cubes (can use microwave)
 1. Chop 1 onion
-1. Chop 2 bell peppers
 1. Cook 1 lb dead chicken on medium in big pot with a little water with onions
 1. Chop mushrooms
+1. Chop 2 bell peppers
 1. Wait until onion is translucent and chicken is white
 1. Put mushrooms in
 1. Wait until mushrooms are darker brown
